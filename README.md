@@ -3,6 +3,7 @@
 shake it out west <br>
 slang it out west <br>
 gold meatallic knife make it outwest <br>
-I used to jumpouta back of the bus <br>
-Now i jumpoofa jet <br>
+i just put my drum <br>
+on a new kel-tec <br>
+
 </p>
